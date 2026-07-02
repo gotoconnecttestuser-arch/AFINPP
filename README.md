@@ -87,7 +87,7 @@ We may update this Privacy Policy periodically. Updates will be posted with a re
 10. Contact Information
 
 AF INSURANCE AGENT LLC  
-Website: https://AFInsuranceAgent.com  
+
 Email: AFLORES.INSURANCEAGENT@GMAIL.COM  
 Phone: +1 386 444 9566  
 Address: 101 S Ridgewood Ave, Edgewater, FL 32132-1915, US
